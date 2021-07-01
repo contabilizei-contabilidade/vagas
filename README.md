@@ -1,4 +1,4 @@
-# Venha para a Contabilizei
+# Vem Pra Contabilizei
 ![image](https://user-images.githubusercontent.com/16033013/124142471-9f581e80-da60-11eb-83be-4961ceaf38b5.png)
 
 ## Sobre a Contabilizei
@@ -17,4 +17,4 @@ Oferecemos um ambiente descontraído, completamente colaborativo, com ritmo acel
 
 Aqui na Contabilizei, as oportunidades são para todos! Queremos que você seja a melhor versão de si e se sinta bem onde estiver. Valorizamos as diferenças e temos um ambiente onde todos são mais que bem-vindos, independente de deficiência, gênero, etnia, orientação sexual, origem, entre outras diversidades, pois entendemos que JUNTOS construímos a Contabilizei do nosso jeito.
 
-🚀 Confira nossas oportunidades (https://contabilizei.gupy.io) e (https://www.linkedin.com/company/contabilizei/jobs/)
+🚀 Confira nossas oportunidades em nossa [página de carreiras](https://contabilizei.gupy.io) e no [LinkedIn](https://www.linkedin.com/company/contabilizei/jobs/).
